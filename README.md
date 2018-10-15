@@ -4,4 +4,4 @@ Hiya!
 
 Pues aquí aprendiendo cosas nuevas a las 2:00 y muriendo de calor en clase. 
  pero vamos que se van comprendiendo cosas y ni tan mal.
- Cómo hasta ahora no he puesto mensaje pues lo pongo en este cambio
+ Cómo hasta ahora no he puesto mensaje pues lo pongo en este
